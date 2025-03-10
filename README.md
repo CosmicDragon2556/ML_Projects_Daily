@@ -1,1 +1,1 @@
-Update : Postponed untill 8 March due to Quizzes and Exams
+Update : Postponed due to Quizzes and Exams
